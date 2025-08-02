@@ -70,7 +70,5 @@ Code:
 
 📢 Telegram ID: [@Youchie](https://t.me/Youchie)
 
-📢 Telegram Group: [Smartcam_1](https://t.me/Smartcam_1)
-
-📢 Telegram Channel: [Smart_CamTeam](https://t.me/Smart_CamTeam)
+📢 Telegram Channel: [SMARTCAM TEAM](https://t.me/smartcam_team)
 
